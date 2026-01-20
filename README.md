@@ -1,0 +1,1 @@
+# rozumni-zmitky
